@@ -14,4 +14,4 @@ Subscription/legal wording:
 `Cancel anytime. By subscribing, you agree to immediate access and acknowledge that you lose any statutory 14-day right to refund.`
 
 
-Support email: plantpantryapp@outlook.com
+Support email: IndexRidge@outlook.com
